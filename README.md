@@ -1,2 +1,2 @@
 ### Ciao world, I'm Sally !
-A bartender with a passion for travelsling! Working-travelling around the world since the past 10 years, always looking for new ways **to stimulate** my Italian brain; <em>ready for a great new challenge !</em>
+A bartender with a passion for travelling! Working-travelling around the world since the past 10 years, always looking for new ways **to stimulate** my Italian brain; <em>ready for a great new challenge !</em>
